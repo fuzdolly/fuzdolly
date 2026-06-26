@@ -7,7 +7,7 @@ $\color{#1d4c4a}{\text{.✦ ݁˖ you're always welcome here, cutie! ᵔᴗᵔ}}$
 <img width="1280" height="427" alt="5323657559224819389" src="https://github.com/user-attachments/assets/6feb0288-d945-4bed-9425-22a49c931b28" />
 
 
-$\color{#2a5a55}{\text{::     ꒰     𝐦𝐲 𝐩𝐬𝐞𝐮𝐝𝐨 : 𝐂𝐫𝐲𝐨𝐧𝐢𝐬 (𝐩𝐫𝐞𝐟𝐞𝐫) 𝐨𝐫 𝐅𝐫𝐨𝐬𝐭𝐛𝐢𝐭𝐞 ੭  ֹ  ˚₊‧꒰ა ☆ ໒꒱}}$
+$\color{#2a5a55}{\text{::     ꒰     𝐦𝐲 𝐩𝐬𝐞𝐮𝐝𝐨 : dolly nightvale ੭  ֹ  ˚₊‧꒰ა ☆ ໒꒱}}$
 $\color{#3b7568}{\text{‧₊˚‧˚꒰୭ ˚. ᵎᵎ   ۫  ⊹   ᵐʸ ᵖʳᵒⁿᵒᵘⁿˢ: ᵗʰᵉʸ/ᵗʰᵉᵐ ⁽ᵇᵃˢⁱᶜ⁾ ᵃⁿᵈ ⁱᵗ/ⁱᵗˢ     命}}$
 
 
