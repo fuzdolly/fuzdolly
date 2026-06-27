@@ -32,5 +32,5 @@ $\color{#99c09e}{\text{ᴏᴘᴘʀᴇꜱꜱɪᴏɴ, ᴘʀᴏ-ᴄᴏɴᴛᴀᴄ�
 
 $\color{#99c09e}{\text{｡. ﾟ  ·  my dearest friends !  (˶ˆᗜˆ˵)}}$
 
-$\color{#99c09e}{\text{‹𝟹 • ıllı ya.zhru.tapki , kirillwuo , hino , tweeksik , jimway , yuki , comas , archangel , giyenashi , ronnie , }}$
+$\color{#99c09e}{\text{‹𝟹 • ıllı ya.zhru.tapki , kirillwuo , hino , tweeksik , aronie , yuki , comas , archangel , giyenashi , ronnie , }}$
 $\color{#99c09e}{\text{roman , ballora , viishk , tori , kaisen , nenenaii , rinkkui , sour , astroker}}$
