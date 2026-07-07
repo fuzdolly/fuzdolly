@@ -3,7 +3,8 @@
 
 $\color{#222222}{\text{.✦ ݁˖ you're always welcome here, cutie! ᵔᴗᵔ}}$
 
-<img width="736" height="414" alt="˚₊‧꒰ა ♱ ໒꒱ ‧₊˚ (1)" src="https://github.com/user-attachments/assets/00afe3d0-91f3-4782-a4a8-8b59d275439f" />
+<img width="4096" height="1080" alt="HK6Pj28bUAA1iu7 (1)__fliter--spring-grass__channel--all__mode--normal" src="https://github.com/user-attachments/assets/9d343986-758b-4994-9f91-e2469b19d12e" />
+banner art : ambiguouslulz (X)
 
 $\color{#222222}{\text{::     ꒰     𝐦𝐲 𝐩𝐬𝐞𝐮𝐝𝐨 : dolly nightvale ੭  ֹ  ˚₊‧꒰ა ☆ ໒꒱}}$
 $\color{#222222}{\text{‧₊˚‧˚꒰୭ ˚. ᵎᵎ   ۫  ⊹   ᵐʸ ᵖʳᵒⁿᵒᵘⁿˢ: ᵗʰᵉʸ/ᵗʰᵉᵐ ⁽ᵇᵃˢⁱᶜ⁾ ᵃⁿᵈ ⁱᵗ/ⁱᵗˢ     命}}$
