@@ -12,10 +12,8 @@ $\color{#222222}{\text{‧₊˚‧˚꒰୭ ˚. ᵎᵎ   ۫  ⊹   ᵐʸ ᵖʳᵒ
 
 $\color{#222222}{\text{  I’m also a representative of :  𓏵  pansexuals and aroace (˶>⩊<˶) ⁺  ︵ ༺}}$
 
- 
-$\color{#000000}{\text{𓂃 ♡ ᵢ ₛₚₑₐₖ ₑₙgₗᵢₛₕ ₍bᵣᵢₜᵢₛₕ₎ ₐₙd fᵣₑₙcₕ ౿ ૮꒰ ˶• ༝ •˶꒱ა}}$
-
-<img width="736" height="414" alt="˚₊‧꒰ა ♱ ໒꒱ ‧₊˚" src="https://github.com/user-attachments/assets/ba073d44-97b7-475b-9aff-085a62ac2f5a" />
+<img width="2000" height="590" alt="GuSI4OBXQAAOMxk (2)__fliter--spring-grass__channel--all__mode--normal" src="https://github.com/user-attachments/assets/9c355209-8229-48eb-a0ef-0e05648614dc" />
+banner art : seraphlie (X)
 
 $\color{#000000}{\text{𓂃  "  𝓓𝓝𝓘   :   Qᴜᴇᴇʀᴘʜᴏʙɪᴀ, ᴛʀᴀɴꜱᴘʜᴏʙɪᴀ, ʀᴀᴄɪꜱᴍ, ᴀʙʟᴇɪꜱᴍ, ꜱᴇxɪꜱᴍ, ɴᴇᴜʀᴏᴘʜᴏʙɪᴀ ᴀɴᴅ ᴏᴛʜᴇʀ ꜰᴏʀᴍꜱ ᴏꜰ}}$
 $\color{#000000}{\text{ᴏᴘᴘʀᴇꜱꜱɪᴏɴ, ᴘʀᴏ-ᴄᴏɴᴛᴀᴄᴛ ᴘᴘᴅ, ᴍɪꜱɢᴇɴᴅᴇʀɪɴɢ/ᴍɪꜱᴘʀᴏɴᴏᴜɴɪɴɢ (ɪꜰ ᴅᴏɴᴇ ᴅᴇʟɪʙᴇʀᴀᴛᴇʟʏ) (,,>﹏<,,)}}$
