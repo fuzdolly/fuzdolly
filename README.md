@@ -1,27 +1,25 @@
 # maybe-some-info
 <div align="center">
 
-$\color{#222222}{\text{.✦ ݁˖ you're always welcome here, cutie! ᵔᴗᵔ}}$
+.✦ ݁˖ you're always welcome here! ᵔᴗᵔ
 
-<img width="4096" height="1080" alt="HK6Pj28bUAA1iu7 (1)__fliter--spring-grass__channel--all__mode--normal" src="https://github.com/user-attachments/assets/9d343986-758b-4994-9f91-e2469b19d12e" />
-banner art : ambiguouslulz (X)
+<img width="1900" height="900" alt="НовыйХолст3" src="https://github.com/user-attachments/assets/d9b44e62-d90c-4af2-ae59-3e2dd5dcc387" />
+banner art : thejerboa (Tumblr)
 
-
-$\color{#222222}{\text{::     ꒰     𝐦𝐲 𝐩𝐬𝐞𝐮𝐝𝐨 : dolly nightvale ੭  ֹ  ˚₊‧꒰ა ☆ ໒꒱}}$
-$\color{#222222}{\text{‧₊˚‧˚꒰୭ ˚. ᵎᵎ   ۫  ⊹   ᵐʸ ᵖʳᵒⁿᵒᵘⁿˢ: ᵗʰᵉʸ/ᵗʰᵉᵐ ⁽ᵇᵃˢⁱᶜ⁾ ᵃⁿᵈ ⁱᵗ/ⁱᵗˢ     命}}$
-
-
-$\color{#222222}{\text{  I’m also a representative of :  𓏵  pansexuals and aroace (˶>⩊<˶) ⁺  ︵ ༺}}$
-
-<img width="2000" height="590" alt="GuSI4OBXQAAOMxk (2)__fliter--spring-grass__channel--all__mode--normal" src="https://github.com/user-attachments/assets/9c355209-8229-48eb-a0ef-0e05648614dc" />
-banner art : seraphlie (X)
+::     ꒰     𝐦𝐲 𝐩𝐬𝐞𝐮𝐝𝐨 : dolly nightvale ੭  ֹ  ˚₊‧꒰ა ☆ ໒꒱
+‧₊˚‧˚꒰୭ ˚. ᵎᵎ   ۫  ⊹   ᵐʸ ᵖʳᵒⁿᵒᵘⁿˢ: ᵗʰᵉʸ/ᵗʰᵉᵐ ⁽ᵇᵃˢⁱᶜ⁾ ᵃⁿᵈ ⁱᵗ/ⁱᵗˢ     命
 
 
-$\color{#000000}{\text{𓂃  "  𝓓𝓝𝓘   :   Qᴜᴇᴇʀᴘʜᴏʙɪᴀ, ᴛʀᴀɴꜱᴘʜᴏʙɪᴀ, ʀᴀᴄɪꜱᴍ, ᴀʙʟᴇɪꜱᴍ, ꜱᴇxɪꜱᴍ, ɴᴇᴜʀᴏᴘʜᴏʙɪᴀ ᴀɴᴅ ᴏᴛʜᴇʀ ꜰᴏʀᴍꜱ ᴏꜰ}}$
-$\color{#000000}{\text{ᴏᴘᴘʀᴇꜱꜱɪᴏɴ, ᴘʀᴏ-ᴄᴏɴᴛᴀᴄᴛ ᴘᴘᴅ, ᴍɪꜱɢᴇɴᴅᴇʀɪɴɢ/ᴍɪꜱᴘʀᴏɴᴏᴜɴɪɴɢ (ɪꜰ ᴅᴏɴᴇ ᴅᴇʟɪʙᴇʀᴀᴛᴇʟʏ) (,,>﹏<,,)}}$
+  I’m also a representative of :  𓏵  pansexuals and aroace (˶>⩊<˶) ⁺  ︵ ༺
+
+<img width="1900" height="900" alt="НовыйХолст4" src="https://github.com/user-attachments/assets/3cc4dbf9-3c71-41b7-a2f2-a534cf00b1ea" />
+banner art : squishysealio (Tumblr)
+
+𓂃  "  𝓓𝓝𝓘   :   Qᴜᴇᴇʀᴘʜᴏʙɪᴀ, ᴛʀᴀɴꜱᴘʜᴏʙɪᴀ, ʀᴀᴄɪꜱᴍ, ᴀʙʟᴇɪꜱᴍ, ꜱᴇxɪꜱᴍ, ɴᴇᴜʀᴏᴘʜᴏʙɪᴀ ᴀɴᴅ ᴏᴛʜᴇʀ ꜰᴏʀᴍꜱ ᴏꜰ}}$
+ᴏᴘᴘʀᴇꜱꜱɪᴏɴ, ᴘʀᴏ-ᴄᴏɴᴛᴀᴄᴛ ᴘᴘᴅ, ᴍɪꜱɢᴇɴᴅᴇʀɪɴɢ/ᴍɪꜱᴘʀᴏɴᴏᴜɴɪɴɢ (ɪꜰ ᴅᴏɴᴇ ᴅᴇʟɪʙᴇʀᴀᴛᴇʟʏ) (,,>﹏<,,)}}$
 
 
-$\color{#000000}{\text{｡. ﾟ  ·  my dearest friends !  (˶ˆᗜˆ˵)}}$
+｡. ﾟ  ·  my dearest friends !  (˶ˆᗜˆ˵)}}$
 
-$\color{#000000}{\text{‹𝟹 • ıllı ya.zhru.tapki , kirillwuo , hino , tweeksik , aronie , yuki , comas , archangel , giyenashi , ronnie , }}$
-$\color{#000000}{\text{roman , ballora , viishk , tori , kaisen , nenenaii , rinkkui , sour , astroker}}$
+‹𝟹 • ıllı ya.zhru.tapki (?) , kirillwuo (?) , hino , tweeksik , aronie , yuki , comas , archangel , giyenashi (?) , ronnie , 
+roman , ballora , viishk , tori , kaisen , nenenaii , sour , astroker
