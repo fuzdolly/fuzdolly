@@ -15,7 +15,7 @@ banner art : ceresfull (Tumblr)
 
 I’m also a representative of :  𓏵  pansexuals (˶>⩊<˶) ⁺  ︵ ༺
 
-<img width="2900" height="500" alt="tumblr_e716e0b8f619b2748050980887a5de6d_6978674a_2048__fliter--warm-x-rays__channel--all__mode--normal" src="https://github.com/user-attachments/assets/5809daf3-baf9-4c16-a32c-749d583e750a" />
+<img width="2900" height="500" alt="tumblr_77c88a0f469b3dd5a44b947d1f9a735b_eafcc0c8_1280__fliter--warm-x-rays__channel--all__mode--normal" src="https://github.com/user-attachments/assets/18956794-ac1c-4e8e-99bf-9a2ed58dcb2f" />
 banner art : sdcrevolver (Tumblr)
 
 
