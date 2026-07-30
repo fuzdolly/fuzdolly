@@ -16,16 +16,17 @@ banner art : ceresfull (Tumblr)
 I’m also a representative of :  𓏵  pansexuals (˶>⩊<˶) ⁺  ︵ ༺
 
 <img width="2900" height="500" alt="tumblr_77c88a0f469b3dd5a44b947d1f9a735b_eafcc0c8_1280__fliter--warm-x-rays__channel--all__mode--normal" src="https://github.com/user-attachments/assets/18956794-ac1c-4e8e-99bf-9a2ed58dcb2f" />
+
 banner art : sdcrevolver (Tumblr)
 
 
 
 
-𓂃  "  𝓓𝓝𝓘   :   Qᴜᴇᴇʀᴘʜᴏʙɪᴀ, ᴛʀᴀɴꜱᴘʜᴏʙɪᴀ, ʀᴀᴄɪꜱᴍ, ᴀʙʟᴇɪꜱᴍ, ꜱᴇxɪꜱᴍ, ɴᴇᴜʀᴏᴘʜᴏʙɪᴀ ᴀɴᴅ ᴏᴛʜᴇʀ ꜰᴏʀᴍꜱ ᴏꜰ}}$
-ᴏᴘᴘʀᴇꜱꜱɪᴏɴ, ᴘʀᴏ-ᴄᴏɴᴛᴀᴄᴛ ᴘᴘᴅ, ᴍɪꜱɢᴇɴᴅᴇʀɪɴɢ/ᴍɪꜱᴘʀᴏɴᴏᴜɴɪɴɢ (ɪꜰ ᴅᴏɴᴇ ᴅᴇʟɪʙᴇʀᴀᴛᴇʟʏ) (,,>﹏<,,)}}$
+𓂃  "  𝓓𝓝𝓘   :   Qᴜᴇᴇʀᴘʜᴏʙɪᴀ, ᴛʀᴀɴꜱᴘʜᴏʙɪᴀ, ʀᴀᴄɪꜱᴍ, ᴀʙʟᴇɪꜱᴍ, ꜱᴇxɪꜱᴍ, ɴᴇᴜʀᴏᴘʜᴏʙɪᴀ ᴀɴᴅ ᴏᴛʜᴇʀ ꜰᴏʀᴍꜱ ᴏꜰ
+ᴏᴘᴘʀᴇꜱꜱɪᴏɴ, ᴘʀᴏ-ᴄᴏɴᴛᴀᴄᴛ ᴘᴘᴅ, ᴍɪꜱɢᴇɴᴅᴇʀɪɴɢ/ᴍɪꜱᴘʀᴏɴᴏᴜɴɪɴɢ (ɪꜰ ᴅᴏɴᴇ ᴅᴇʟɪʙᴇʀᴀᴛᴇʟʏ) (,,>﹏<,,)
 
 
-｡. ﾟ  ·  my dearest friends !  (˶ˆᗜˆ˵)}}$
+｡. ﾟ  ·  my dearest friends !  (˶ˆᗜˆ˵)
 
 ‹𝟹 • ıllı kirillwuo , hino , tweeksik , aronie , yuki , comas , archangel , giyenashi , ronnie , 
 roman , ballora , viishk , tori , kaisen , nenenaii , sour , astroker
