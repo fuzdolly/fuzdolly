@@ -1,32 +1,16 @@
 <div align="center">
 
-.✦ ݁˖ you're always welcome here! ᵔᴗᵔ
-
-<img width="2900" height="500" alt="tumblr_e716e0b8f619b2748050980887a5de6d_6978674a_2048__fliter--warm-x-rays__channel--all__mode--normal" src="https://github.com/user-attachments/assets/579f152c-46c1-4f39-af2e-fea54ed5e29c" />
-
-banner art : ceresfull (Tumblr)
-
-
-
-
-::     ꒰     𝐦𝐲 𝐩𝐬𝐞𝐮𝐝𝐨 : dolly nightvale ੭  ֹ  ˚₊‧꒰ა ☆ ໒꒱
-‧₊˚‧˚꒰୭ ˚. ᵎᵎ   ۫  ⊹   ᵐʸ ᵖʳᵒⁿᵒᵘⁿˢ: ᵗʰᵉʸ/ᵗʰᵉᵐ ⁽ᵇᵃˢⁱᶜ⁾ ᵃⁿᵈ ⁱᵗ/ⁱᵗˢ     命
-
-
-I’m also a representative of :  𓏵  pansexuals (˶>⩊<˶) ⁺  ︵ ༺
-
-<img width="2900" height="500" alt="tumblr_77c88a0f469b3dd5a44b947d1f9a735b_eafcc0c8_1280__fliter--warm-x-rays__channel--all__mode--normal" src="https://github.com/user-attachments/assets/18956794-ac1c-4e8e-99bf-9a2ed58dcb2f" />
-
-banner art : sdcrevolver (Tumblr)
-
-
-
-
-𓂃  "  𝓓𝓝𝓘   :   Qᴜᴇᴇʀᴘʜᴏʙɪᴀ, ᴛʀᴀɴꜱᴘʜᴏʙɪᴀ, ʀᴀᴄɪꜱᴍ, ᴀʙʟᴇɪꜱᴍ, ꜱᴇxɪꜱᴍ, ɴᴇᴜʀᴏᴘʜᴏʙɪᴀ ᴀɴᴅ ᴏᴛʜᴇʀ ꜰᴏʀᴍꜱ ᴏꜰ
-ᴏᴘᴘʀᴇꜱꜱɪᴏɴ, ᴘʀᴏ-ᴄᴏɴᴛᴀᴄᴛ ᴘᴘᴅ, ᴍɪꜱɢᴇɴᴅᴇʀɪɴɢ/ᴍɪꜱᴘʀᴏɴᴏᴜɴɪɴɢ (ɪꜰ ᴅᴏɴᴇ ᴅᴇʟɪʙᴇʀᴀᴛᴇʟʏ) (,,>﹏<,,)
-
-
-｡. ﾟ  ·  my dearest friends !  (˶ˆᗜˆ˵)
-
-‹𝟹 • ıllı kirillwuo , hino , tweeksik , aronie , yuki , comas , archangel , giyenashi , ronnie , 
-roman , ballora , viishk , tori , kaisen , nenenaii , sour , astroker
+𓏏𓏏  welcome to me, sweety! .   ♡    𓏽
+<br><br>
+<img width="1190" height="357" alt="tumblr_db8e4f9c553c2da8403d19ddf09707a5_1b9ba263_1280 (1)__fliter--dark-blue-sepia__channel--red__mode--normal" src="https://github.com/user-attachments/assets/5e149588-66d3-4082-9423-d75fcef5261e" />
+<sub>cr leeinpluto on tumblr</sub>
+<br><br><br>
+◜　 ♡ॱ𓏽　　i'm dolly. dolly nightvale. nice to meet you, probably...　　₎₎
+𐚁     ׄ    i'm a representative of pansexuals and greyaroaces. ׅ      ͡♡
+<br><br>
+<img width="2048" height="502" alt="tumblr_5709a7728efbf9bad5f98308fa8d72a4_554ac8b3_2048 (1)__fliter--dark-blue-sepia__channel--red__mode--normal" src="https://github.com/user-attachments/assets/94c95980-8317-4e71-a485-33e6c88d399e" />
+<sub>cr dnaayu on tumblr</sub>
+<br><br>
+ᨳິ    ׂ  .   this is      ྀ ͚
+### 𓏼 me ¹ and ᣟmy gf ²
+<img width="350" height="19" alt="userbar" src="https://github.com/user-attachments/assets/8af0e166-fc10-46db-83dd-7e3aeb595b20" />
