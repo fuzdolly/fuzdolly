@@ -2,15 +2,15 @@
 
 𓏏𓏏  welcome to me, sweety! .   ♡    𓏽
 <br><br>
-<img width="1190" height="357" alt="tumblr_db8e4f9c553c2da8403d19ddf09707a5_1b9ba263_1280 (1)__fliter--dark-blue-sepia__channel--red__mode--normal" src="https://github.com/user-attachments/assets/5e149588-66d3-4082-9423-d75fcef5261e" />
-<sub>cr leeinpluto on tumblr</sub>
+<img width="1764" height="613" alt="HPugC7uXIAAnZul (1)__fliter--warm-x-rays__channel--all__mode--normal" src="https://github.com/user-attachments/assets/48001374-4e95-4dd2-8dea-79ad7c6066da" />
+<sub>cr vvstaryx on x</sub>
 <br><br><br>
 ◜　 ♡ॱ𓏽　　i'm dolly. dolly nightvale. nice to meet you, probably...　　₎₎
 𐚁     ׄ    i'm a representative of pansexuals and greyaroaces. ׅ      ͡♡
 <br><br>
-<img width="2048" height="502" alt="tumblr_5709a7728efbf9bad5f98308fa8d72a4_554ac8b3_2048 (1)__fliter--dark-blue-sepia__channel--red__mode--normal" src="https://github.com/user-attachments/assets/94c95980-8317-4e71-a485-33e6c88d399e" />
-<sub>cr dnaayu on tumblr</sub>
+<img width="3638" height="1336" alt="HOojhDTaoAAaM_l__fliter - warm-x-rays__channel - all__mode - normal" src="https://github.com/user-attachments/assets/48a9ccf9-af52-42ca-a6db-cc3a9ac80efb" />
+<sub>cr finaldizolution on x</sub>
 <br><br>
 ᨳິ    ׂ  .   this is      ྀ ͚
 ### 𓏼 me ¹ and ᣟmy gf ²
-<img width="350" height="19" alt="userbar" src="https://github.com/user-attachments/assets/8af0e166-fc10-46db-83dd-7e3aeb595b20" />
+<img width="1195" height="245" alt="tumblr_oo00rb4BZx1w9ncsro1_1280__fliter--warm-x-rays__channel--all__mode--normal" src="https://github.com/user-attachments/assets/6c7b0635-fba0-46ae-924a-3da218e0832c" />
