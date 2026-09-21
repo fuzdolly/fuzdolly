@@ -1,17 +1,15 @@
 <div align="center">
 
-𓏏𓏏  welcome to me, sweety! .   ♡    𓏽
+ᅠ𓈒  welcome to me, sweety   ִ̼    ఎ 
 <br><br>
-<img width="1764" height="613" alt="HPugC7uXIAAnZul (1)__fliter--warm-x-rays__channel--all__mode--normal" src="https://github.com/user-attachments/assets/48001374-4e95-4dd2-8dea-79ad7c6066da" />
-<sub>cr vvstaryx on x</sub>
+<img width="2897" height="1303" alt="НовыйХолст2" src="https://github.com/user-attachments/assets/33d662bb-0cfe-4134-b309-c746a3ab5230" />
+<sub>cr G_Nightzz on х</sub>
 <br><br><br>
-◜　 ♡ॱ𓏽　　i'm dolly. dolly nightvale. nice to meet you, probably...　　₎₎
-𐚁     ׄ    i'm a representative of pansexuals and greyaroaces. ׅ      ͡♡
+꒰ ᅟ call me Dolly or Meverlin  ‌۫۫   ࣪ 𓈒    ⌢ sx5sx9sp4 INFJ LEVF ִ     ࿙   ‌۫۫   ࣪ 𓈒 pansexual-asexual, nonbinary-agender ⌢     ͡   ︵  ♡   
 <br><br>
-<img width="3638" height="1336" alt="HOojhDTaoAAaM_l__fliter - warm-x-rays__channel - all__mode - normal" src="https://github.com/user-attachments/assets/48a9ccf9-af52-42ca-a6db-cc3a9ac80efb" />
-<sub>cr finaldizolution on x</sub>
+<img width="2897" height="1303" alt="НовыйХолст2" src="https://github.com/user-attachments/assets/8a52a04a-98db-434c-88dc-d1cc0366e736" />
+<sub>cr Tommanichka on tg</sub>
 <br><br>
-ᨳິ    ׂ  .   this is      ྀ ͚
-### 𓏼 me ¹ and ᣟmy gf ²
+﹕⠀⠀ㅤ ⏜︵  I love my gf so muchㅤׁㅤㅤᗜ this is true us ᗜㅤ࣭ㅤ
 <br><br>
-<img width="1195" height="245" alt="tumblr_oo00rb4BZx1w9ncsro1_1280__fliter--warm-x-rays__channel--all__mode--normal" src="https://github.com/user-attachments/assets/6c7b0635-fba0-46ae-924a-3da218e0832c" />
+<img width="2897" height="1303" alt="НовыйХолст2" src="https://github.com/user-attachments/assets/ffe52b1a-bc0a-4530-86eb-f31efb090a61" />
